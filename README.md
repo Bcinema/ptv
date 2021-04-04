@@ -11,11 +11,11 @@
 ------
 :kiss: :point_right: 【地址五】 ：敬请期待
 ------
-:kiss: :point_right: 【邮箱联系方式】 ：xbtv168@gmail.com
+:kiss: :point_right: 【邮箱联系方式】 ：pyingyuan168@gmail.com
 ------
 :heart_eyes_cat:重要提醒:heart_eyes_cat: 收藏本页面，避免迷路！请多收藏本站域名，轻松回家！
 ==
 
 -
 
-:love_letter: __邮箱联系方式: xbtv168@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
+:love_letter: __邮箱联系方式: pyingyuan168@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
