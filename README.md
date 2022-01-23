@@ -1,15 +1,15 @@
 # P影院
 :heart_eyes_cat::heart_eyes_cat:P影院 地址发布:heart_eyes_cat::heart_eyes_cat:
 ==
-:kiss: :point_right: 【本站地址防迷路】 ：https://pqitaihep.vip
+:kiss: :point_right: 【本站地址防迷路】 ：https://psuqianp.vip
 ------
-:kiss: :point_right: 【地址二】 ：https://psuihuap.vip
+:kiss: :point_right: 【地址二】 ：https://pxinghuap.vip
 ------
-:kiss: :point_right: 【地址三】 ：https://ptaonanp.vip
+:kiss: :point_right: 【地址三】 ：https://pshaoxingp.vip
 ------
-:kiss: :point_right: 【地址四】 ：https://pwuxip.vip
+:kiss: :point_right: 【地址四】 ：https://pningpop.vip
 ------
-:kiss: :point_right: 【地址五】 ：https://pjixip.vip
+:kiss: :point_right: 【地址五】 ：https://plinhaip.vip
 ------
 :kiss: :point_right: 【邮箱联系方式】 ：pyingyuan168@gmail.com
 ------
